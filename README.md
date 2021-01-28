@@ -29,6 +29,6 @@ Du kommer även under arbetets gång få miniföreläsningar om hur du kan göra
 
 ## Planering
 
-![IMG_2447](IMG_2447.png)
-![IMG_2448](IMG_2448.png)
-![IMG_2449](IMG_2449.png)
+![IMG_2447](IMG_2447.jpg)
+![IMG_2448](IMG_2448.jpg)
+![IMG_2449](IMG_2449.jpg)
